@@ -1,1 +1,1 @@
-# het-paviljoen-van-de-wollige-terroristen
+# het paviljoen van de wollige terroristen
